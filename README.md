@@ -1,2 +1,0 @@
-# jimbaMe.github.io
-jjjjjj
